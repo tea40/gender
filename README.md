@@ -1,3 +1,3 @@
 # gender
 
-it/its kitten thing
+you already know its it
